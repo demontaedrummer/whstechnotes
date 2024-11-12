@@ -15,3 +15,7 @@ The way that computer science impacts my life is my apple watch and its a big pa
 helpful: it can come up with good ideas and search up answers quick Harmful : its harmful because some times the answers it comes up with can be made up because it didnt find a soluton 
 # october 28, 2024
 the postive impact is it makes the voting process quicker and more efecient however it can also be used to potentialy cheat the votes 
+# November 4, 2024
+1, it is important because people can get all your info such as id, bank etc 2, by making sur its a safe site or get a good vpn 3, me perosonaly i never have but i would try to delete it now if so 4, by making sure they are trust worthy 
+# november 12, 2024
+Techonlogy impacts football by enabling us to order are female by the plays percentage etc and some advacements that could help is diffrent angles or show how fast it was ran ETC
