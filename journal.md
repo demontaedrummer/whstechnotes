@@ -19,3 +19,5 @@ the postive impact is it makes the voting process quicker and more efecient howe
 1, it is important because people can get all your info such as id, bank etc 2, by making sur its a safe site or get a good vpn 3, me perosonaly i never have but i would try to delete it now if so 4, by making sure they are trust worthy 
 # november 12, 2024
 Techonlogy impacts football by enabling us to order are female by the plays percentage etc and some advacements that could help is diffrent angles or show how fast it was ran ETC
+# november 18, 2024
+The way technolgy has changed the way we grew up is that we are exposed to more information so we can either learn a lot or learn some false information. And the way it has mae food more accessible in the holiday season is apps like doordash were yoiu can order the food to you however some negative effect is you cant trust everything evolving tech because it can be a scam or it can simply mess up and get stuff wrong some day.
