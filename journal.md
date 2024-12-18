@@ -21,3 +21,9 @@ the postive impact is it makes the voting process quicker and more efecient howe
 Techonlogy impacts football by enabling us to order are female by the plays percentage etc and some advacements that could help is diffrent angles or show how fast it was ran ETC
 # november 18, 2024
 The way technolgy has changed the way we grew up is that we are exposed to more information so we can either learn a lot or learn some false information. And the way it has mae food more accessible in the holiday season is apps like doordash were yoiu can order the food to you however some negative effect is you cant trust everything evolving tech because it can be a scam or it can simply mess up and get stuff wrong some day.
+# december 2, 2024
+Thgey came up with a program were they can watch humans and learn
+# december 9, 2024 
+Brain rot means all the stuff on tiktok or socials that is dumb for kids and doesnt make sense like skibdi toilet rizz
+# december 16, 2024
+i am looking foward for brake so i can sleep in 
