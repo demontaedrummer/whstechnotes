@@ -27,3 +27,5 @@ Thgey came up with a program were they can watch humans and learn
 Brain rot means all the stuff on tiktok or socials that is dumb for kids and doesnt make sense like skibdi toilet rizz
 # december 16, 2024
 i am looking foward for brake so i can sleep in 
+# january 8, 2025
+The thing i enjoyed most about the class is that i sit by my self and i feel there is nothing to improve, Looking ahead there isnt anything thing spesific i want to work on in this class yet 
