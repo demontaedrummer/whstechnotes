@@ -29,3 +29,7 @@ Brain rot means all the stuff on tiktok or socials that is dumb for kids and doe
 i am looking foward for brake so i can sleep in 
 # january 8, 2025
 The thing i enjoyed most about the class is that i sit by my self and i feel there is nothing to improve, Looking ahead there isnt anything thing spesific i want to work on in this class yet 
+# january 13, 2025
+I feel it would ehance the peoples work do to easy solution soving such as creative solutons to  problem or just answers in genral. the way i would prep for the shift is by making sure my job isnt one that could not be took by A.I
+# january 22, 2025
+I feel like the gov protects us but at the same time limits us to some stuff. I fel like companies liken tiktok not sell are info to third parties and actually protect it. I would add the future were no one can get your info from ar data base unless right fully needed. The lesson i would take s dont sell users info. 
