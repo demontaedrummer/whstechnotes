@@ -33,3 +33,11 @@ The thing i enjoyed most about the class is that i sit by my self and i feel the
 I feel it would ehance the peoples work do to easy solution soving such as creative solutons to  problem or just answers in genral. the way i would prep for the shift is by making sure my job isnt one that could not be took by A.I
 # january 22, 2025
 I feel like the gov protects us but at the same time limits us to some stuff. I fel like companies liken tiktok not sell are info to third parties and actually protect it. I would add the future were no one can get your info from ar data base unless right fully needed. The lesson i would take s dont sell users info. 
+# january 27, 2025
+dnf
+# frbuary 3, 2025
+Some improvements we could make to air plane safety is make sure all air trafic is good and no malfunctions in radairs and do better inspections on the planes.
+# febuary 5, 2025
+late work policy
+# febuary 11, 2025
+
