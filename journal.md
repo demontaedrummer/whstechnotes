@@ -40,4 +40,12 @@ Some improvements we could make to air plane safety is make sure all air trafic 
 # febuary 5, 2025
 late work policy
 # febuary 11, 2025
-
+I would have it designed were it oicks up small habits so the team can make adjust meants live in game and were it automatically recogniazes formations and numbers them by how much its been used on us.
+# febuary 18, 2025
+the most intresting thing i learned last week is how to fish.
+# febuary 24, 2025 
+The internet can help educaters keep up with the youth by things like the urban dictonary were it keeps all the new slang in it or just keep up wit trends the kids are going by toimprove there learning and keep up with kids intrest.
+# march 3, 2025
+dnf
+# march 17, 2025
+The app i used the most over this spring brake was google maps for fishing spots
