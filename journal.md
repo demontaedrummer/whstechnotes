@@ -49,3 +49,9 @@ The internet can help educaters keep up with the youth by things like the urban 
 dnf
 # march 17, 2025
 The app i used the most over this spring brake was google maps for fishing spots
+# march 24, 2025
+The biggest part tech has in sports now is stats and performance tracking.
+# march 31, 2025
+1. okay 2.the most stress part of schoolk is school 3.work out 5. my mom becauseshe been here my whole life
+
+   
